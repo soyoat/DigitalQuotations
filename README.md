@@ -8,4 +8,4 @@
 ### 小米
 #### 	常程
 ​	2020/4/25：765G是865青春无敌版
-​	![批注 2020-04-25 192742](picture/%E6%89%B9%E6%B3%A8%202020-04-25%20192742.jpg)
+​	![批注 2020-04-25 192742](https://github.com/soyoat/DigitalQuotations/blob/master/picture/%E6%89%B9%E6%B3%A8%202020-04-25%20192742.jpg)
